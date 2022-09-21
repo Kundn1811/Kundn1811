@@ -13,9 +13,9 @@
 
 - 📫 How to reach me **kd181197@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1t-sGuTo3gnTUKTeQW2-XxrHrS8o8GS89](https://drive.google.com/drive/folders/1t-sGuTo3gnTUKTeQW2-XxrHrS8o8GS89)
+- 📄 Know about my experiences/Resume [https://drive.google.com/file/d/185voIJg4OtkK4V2AsdqOeeo-3ZSI6uUH/view?usp=sharing](https://drive.google.com/file/d/185voIJg4OtkK4V2AsdqOeeo-3ZSI6uUH/view?usp=sharing)
 
-- ⚡ Fun fact **I think I have humor**
+- ⚡ Fun fact **I have good presence of mind**
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kundn1811&label=Profile%20views&color=0e75b6&style=flat" alt="kundn1811" /> </p>
 
