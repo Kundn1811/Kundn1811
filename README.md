@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **React Js, MERN Stack**
 
-- 👨‍💻 My Portfolio [https://kundankr.netlify.app/](https://rad-longma-d8b15a.netlify.app/)
+- 👨‍💻 My Portfolio [https://kundankr.netlify.app/](https://kundankr.netlify.app/)
 
 - 💬 Ask me about **React js, Javascript, Java**
 
